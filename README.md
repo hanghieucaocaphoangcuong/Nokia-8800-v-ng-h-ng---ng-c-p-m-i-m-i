@@ -1,0 +1,2 @@
+# Nokia-8800-v-ng-h-ng---ng-c-p-m-i-m-i
+Nokia 8800 vàng hồng - Đẳng cấp mãi mãi Hoàng Cường trân trọng giới thiệu đến quý khách hàng sản phẩm điện thoại Nokia 8800 Vàng Hồng nguyên bản chính hãng đảm bảo chất lượng.  Đến với Hoàng Cường bạn sẽ không phải lo lắng về chất lượng sản phẩm Nokia 8800 đồng thời nhận được những ưu đãi bất ngờ!!! http://cuong.vn/nokia-8800-vang-hong.html  http://cuong.vn/nokia-8800.html #Nokia8800 #điệnthoại8800chínhhãng 
